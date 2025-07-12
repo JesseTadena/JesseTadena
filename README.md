@@ -1,2 +1,2 @@
-Hi there
-Here is where My portfolio is suppose to go
+Greetings!
+My Name Is Jesse Tadena.
